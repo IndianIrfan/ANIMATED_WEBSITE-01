@@ -15,5 +15,3 @@ Check out the project here: [https://lnkd.in/gAm8-g7G]
 Stay tuned for more exciting projects as I continue to explore different concepts and enhance my skills. Let's keep pushing boundaries and innovating together!
 
 #WebDesign #Animation #HTML #CSS #JavaScript #Innovation🚀💻
-
-"D:\Pictures\Irfan pro img.png"
